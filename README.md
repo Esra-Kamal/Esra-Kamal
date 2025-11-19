@@ -57,4 +57,3 @@ As a volunteer at Nafir Network, I contribute to designing and organizing events
 ---
 ## 📫 Connect with Me
 - LinkedIn: **www.linkedin.com/in/esraakamal**  
-- Email: **israaKabdallah@outlook.com**
